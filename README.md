@@ -1,2 +1,2 @@
 # Nigger new soris updated MAIN\
-https://ibb.co/JCDQSXy
+https://ibb.co/JCDQSXy (CLICKGUI PHOTO)
