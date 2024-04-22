@@ -1,1 +1,2 @@
-# Nigger new soris updated MAIN
+# Nigger new soris updated MAIN\
+https://ibb.co/JCDQSXy
